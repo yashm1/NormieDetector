@@ -1,2 +1,2 @@
 # NormieDetector
-Are Bhaiya Normie ho jya?
+Are Bhaiya Normie ho kya?
